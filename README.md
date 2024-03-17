@@ -1,4 +1,4 @@
-                                                                   Exchange my effortless skills for a large amount of money，that is the best thing in this sociality
+Exchange my effortless skills for a large amount of money，that is the best thing in this sociality
 
 - 👋 Hi, I’m your kin
 - 👀 I’m interested in ComputerScience
